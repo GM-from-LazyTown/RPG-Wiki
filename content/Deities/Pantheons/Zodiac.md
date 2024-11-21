@@ -1,2 +1,1 @@
-[[Aries - The Blazing Ram]]
-[[Taurus - Honor Incarnate]]
+[[Aries - The Blazing Ram]]<br>[[Taurus - Honor Incarnate]]
