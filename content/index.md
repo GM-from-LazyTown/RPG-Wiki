@@ -1,11 +1,4 @@
 ---
-title: Welcome to Quartz
+title: Welcome to Meiclow's RPG Wiki
 ---
-The Index
-
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
-
-GM-from-LazyTown.github.io/[RPG-Wiki](https://github.com/GM-from-LazyTown/RPG-Wiki)
-
-Blah Blah
+If I ever start running campaigns with homebrew worlds/rules, this is were you'll be able to find information on anything that has been added or changed.
