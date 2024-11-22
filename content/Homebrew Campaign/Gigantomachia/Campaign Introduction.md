@@ -1,0 +1,1 @@
+My next planned campaign will take place in [[Gigantes Archipelago]] and will be about rebellion and rise against tyranny of oppressive Giants. Everything will be in the setting inspired by ancient Greece, Rome and other cultures of Mediterranean Basin.

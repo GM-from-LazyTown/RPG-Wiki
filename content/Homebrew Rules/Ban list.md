@@ -1,0 +1,1 @@
+**Archetypes**<br><br>**Exemplar archetype**<br>**Champion archetype** _(when played with [Free Archetype](https://2e.aonprd.com/Rules.aspx?ID=2751) variant rule)_<br><br><br>**Spells**<br><br>[Live Wire](https://app.demiplane.com/nexus/pathfinder2e/spells/live-wire-rm)
