@@ -1,0 +1,1 @@
+The most common ancestry on the [[Continent of Berythos]]. Humans are known to be adaptable and resourceful, which made them the most common ancestry in most of the world.
