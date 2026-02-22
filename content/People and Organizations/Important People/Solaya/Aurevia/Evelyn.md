@@ -1,0 +1,1 @@
+Deceased wife of [[Grom]] and mother of [[Zefir]].

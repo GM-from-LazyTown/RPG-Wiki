@@ -1,0 +1,1 @@
+Thug in [[Kingdom of Solaya]], apprehended by the [[Party]]. Currently residing in prison in [[Aurevia]].

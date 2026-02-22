@@ -1,0 +1,1 @@
+Chief of the [[Aurevia]] branch of the [[Adventurers' Guild]]. Currently, due to lack of workforce also works as it's receptionist.

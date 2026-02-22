@@ -1,0 +1,1 @@
+Minister of Internal Affairs of the [[Kingdom of Solaya]]. Currently resides in [[Aurevia]].

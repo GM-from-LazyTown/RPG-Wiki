@@ -1,0 +1,1 @@
+Blind [[ratfolk]] who trained [[Claude]]. Was met by the [[Party]] in the sewers of [[Aurevia]].

@@ -1,0 +1,1 @@
+Well known and respected nobleman in [[Aurevia]]. Father of [[Hector Bluewall]].

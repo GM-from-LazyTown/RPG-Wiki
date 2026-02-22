@@ -1,0 +1,1 @@
+Father of [[Alexander Redisckle]]. Self-made noblemen in [[Aurevia]], whose family control most if the region agriculture.

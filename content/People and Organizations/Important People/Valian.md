@@ -1,0 +1,1 @@
+Angelic knight, met by the [[Party]] at the entrance to the hideout of the [[Dark Edward]].

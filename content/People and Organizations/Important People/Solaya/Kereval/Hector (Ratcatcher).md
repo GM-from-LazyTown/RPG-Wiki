@@ -1,0 +1,1 @@
+Former ratcatcher in [[Aurevia]]. Moved out to [[Kereval]] to become fisherman after discussion with [[Khult]].

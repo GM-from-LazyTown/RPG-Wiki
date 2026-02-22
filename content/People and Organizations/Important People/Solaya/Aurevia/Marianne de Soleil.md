@@ -1,0 +1,1 @@
+[[Half-angel]]. Knight of the [[Order of the Argent Blade]] and princes of the [[Kingdom of Solaya]]. Known as one of the greatest warriors in the country. Always cover her face with sturdy silver helm, modeled after lion's head.

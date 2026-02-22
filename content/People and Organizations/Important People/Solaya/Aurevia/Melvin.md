@@ -1,0 +1,1 @@
+Receptionist for the [[Adventurers' Guild]] in [[Aurevia]]. Got as a part of scheme to murder [[Alexander Redickle]].

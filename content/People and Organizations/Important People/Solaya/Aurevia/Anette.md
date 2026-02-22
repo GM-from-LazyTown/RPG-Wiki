@@ -1,0 +1,1 @@
+Friend oof [[Alexander Redickle]]. [[Adventurer]], who got killed during the training.

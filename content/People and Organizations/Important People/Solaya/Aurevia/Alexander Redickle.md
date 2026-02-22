@@ -1,0 +1,1 @@
+Son of [[Henry Redsickle]]. [[Adventurer]], who got killed during the training. His body was recovered by [[ratfolk]] and later found by the [[Party]], who then delivered it to the boy's father.

@@ -1,0 +1,1 @@
+[[Half-angel]]. Current grandmaster of the [[Order of the Argent Blade]] and priness of the [[Kingdom of Solaya]]. Sister of the [[Leon II de Soleil]]. Known as great warrior with two angelic wings sprouting out of her back.

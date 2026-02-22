@@ -1,0 +1,1 @@
+Mysterious criminal leader operating in [[Kingdom of Solaya]]. Father figure for [[Zefir]]. Part of the [[Blackshield]].
